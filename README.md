@@ -1,3 +1,3 @@
 # windsort1
 hola windsort1
-MERY NO TERIAS DE MI PAGINA
+MERY NO TE RIAS DE MI PAGINA
